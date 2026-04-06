@@ -1,2 +1,2 @@
-# Mahika-Shah
+# Mahika Shah
 Hi I'm Mahika 
